@@ -1,0 +1,1 @@
+1. Artificial Intelligence: The Recent Past, FOSSASIA, Singapore http://bit.ly/2mX6hha.
